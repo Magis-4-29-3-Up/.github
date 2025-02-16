@@ -2,6 +2,8 @@
 
 # [DESCARGAR](https://tinyurl.com/drkwryf3)
 
+![image](https://github.com/user-attachments/assets/44aacb66-d299-4136-ab29-e7d692c8477f)
+
 📌 Magis 4.29.3 ha sido actualizado con nuevas funciones y mejoras de rendimiento. Esta versión premium ofrece una experiencia optimizada para Android TV, con mejor estabilidad, más contenido y una interfaz mejorada.
 
 ![image](https://github.com/user-attachments/assets/19a51c78-b771-4103-abfe-95425c0e64b1)
